@@ -36,11 +36,11 @@ The Centers of Excellence, a signature initiative of the administration, was des
 
 ### About GSA
 
-The mission of the U.S. General Services Administration is to deliver value and savings in real estate, acquisition, technology, and other mission-support services across the government. One of GSA’s four strategic goals is to improve the way agencies buy, build and use technology. To learn more about GSA or the CoE visit gsa.gov or coe.gsa.gov and join the conversation on social media at @USGSA, @GSACOE and @GSAEmily.
+The mission of the U.S. General Services Administration is to deliver value and savings in real estate, acquisition, technology, and other mission-support services across the government. One of GSA’s four strategic goals is to improve the way agencies buy, build and use technology. To learn more about GSA or the CoE visit [gsa.gov](gsa.gov) or [coe.gsa.gov](coe.gsa.gov) and join the conversation on social media at @USGSA, @GSACOE and @GSAEmily.
 
 ### About DOL
 
-The mission of the U.S. Department of Labor is to foster, promote, and develop the welfare of the wage earners, job seekers, and retirees of the United States; improve working conditions; advance opportunities for profitable employment; and assure work-related benefits and rights. To learn more about DOL visit dol.gov or on social media at @USDOL.
+The mission of the U.S. Department of Labor is to foster, promote, and develop the welfare of the wage earners, job seekers, and retirees of the United States; improve working conditions; advance opportunities for profitable employment; and assure work-related benefits and rights. To learn more about DOL visit [dol.gov](dol.gov) or on social media at @USDOL.
 
 ## Questions?
 
